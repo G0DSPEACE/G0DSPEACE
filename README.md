@@ -20,16 +20,12 @@
     &nbsp;&nbsp;&nbsp;
     &nbsp;&nbsp;&nbsp;
     &nbsp;&nbsp;&nbsp;
-    &nbsp;&nbsp;&nbsp;
-    &nbsp;&nbsp;&nbsp;
   안평화  
     &nbsp;&nbsp;&nbsp;
   ×
   &nbsp;&nbsp;&nbsp;
   주인철
   &nbsp;&nbsp;&nbsp;
-    &nbsp;&nbsp;&nbsp;
-    &nbsp;&nbsp;&nbsp;
     &nbsp;&nbsp;&nbsp;
     &nbsp;&nbsp;&nbsp;
     &nbsp;&nbsp;&nbsp;
