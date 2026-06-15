@@ -11,7 +11,7 @@
 
 
 <p align="center">
-  <a href="https://8k1bun.atabook.org/">a ta</a>
+  <a href="https://kibun.atabook.org/">a ta</a>
      &nbsp;&nbsp;&nbsp;
   &nbsp;&nbsp;&nbsp;
     &nbsp;&nbsp;&nbsp;
