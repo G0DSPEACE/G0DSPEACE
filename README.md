@@ -1,5 +1,5 @@
 # 81
-<img src="https://kommodo.ai/i/jIaJXWRTeDSsHMMo55aH.png" alt="1000018165" loading="lazy" style="max-width:100%;height:auto;">
+<img src="https://i.postimg.cc/brQSdPqk/Untitled1224-20260714141741.png" alt="1000018165" loading="lazy" style="max-width:100%;height:auto;">
 
 
 <p align="center">
